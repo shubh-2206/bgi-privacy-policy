@@ -351,13 +351,12 @@ If you have any questions, concerns, or requests regarding this Privacy Policy o
 
 **App Name:** BGI
 
-**Email:** [Official BGI Email Address]
+**Email:** noreplybgi@gmaill.com
 
-**Phone:** [Official Contact Number]
+**Website:** (https://bit.ac.in/)
 
-**Website:** [Official BGI Website]
-
-**Address:** [Official BGI Address]
+**Address:** CL-1, Sector 7, Gida,
+Gorakhpur, UP 273209
 
 ---
 
